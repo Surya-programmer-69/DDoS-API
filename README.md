@@ -1,7 +1,7 @@
 # Information<br>
 🔥 https://rebirth-mirrors.net?ref=GITHUB | BEST LAYER 7 / LAYER 4 STRESSER | EASY TO USE API & WEBSITE. | GEOBLOCK BYPASS & MORE <br>
 <br>
-<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src="https://i.ibb.co/dnPtkdn/pic.png" alt="pic" border="0"></a><br>
+<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src="https://s6.imgcdn.dev/YFJltl.png" alt="pic" border="0"></a><br>
 <br>
 Features:<br>
 <br>
@@ -18,4 +18,4 @@ We also provide FiveM, Minecraft, R6 & More Game Methods to suit your needs! Cra
 Kind regards,<br>
 https://signal.me/#eu/h2fkQglQS1yFn009xRq-F4BLbJkBWVvEKNjn9LeqjCZ9pIegigdKxJsj8u4cukaX | https://rebirth-mirrors.net?ref=GITHUB<br>
 <br>
-<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src="https://i.ibb.co/rRzLXF13/Rebirth-Stress-ezgif-com-optimize-2.gif" alt="final" border="0"></a>
+<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src="https://s6.imgcdn.dev/YFJaYh.gif" alt="final" border="0"></a>
